@@ -1,0 +1,1 @@
+# veille-st-assets
